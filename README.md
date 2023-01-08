@@ -9,4 +9,4 @@
 
 - Хочу стать первоклассным специалистом.
 
-![Картанка для поднятия настроения](https://images.app.goo.gl/rbJpt5MBjdQWtG428)
+![Картанка для поднятия настроения](https://user-images.githubusercontent.com/121807872/211211943-a0d9bfdd-ebd9-49f6-8427-b92c4544c6ba.jpg)
